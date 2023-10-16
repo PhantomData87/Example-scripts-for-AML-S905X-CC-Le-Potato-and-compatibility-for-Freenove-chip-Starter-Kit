@@ -1,0 +1,1 @@
+These were shot when I was in college and at my own house. Forgive for any bad video or sound quality (shot from phone). However, they demonstrate perfectly what had went down for each script (and how far I manage to use the chips present)
